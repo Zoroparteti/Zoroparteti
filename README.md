@@ -5,7 +5,7 @@
 - 📫 How to reach me,there is no way to reach me
 Just kidding,always open to cool ideas!
 - 😄 Pronouns: king👑 or kk8
-- ⚡ Fun fact: I love to watch anime(favourite anime one)
+- ⚡ Fun fact: I love to watch anime(favourite anime one piece)
 coder,conquer,repeat-because everyday brings me closer to my own one piece.
 
 
